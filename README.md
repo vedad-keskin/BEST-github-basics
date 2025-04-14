@@ -3,7 +3,7 @@
 ## Dodatni linkovi i uputstva
 
 ### Video link radoinice
-- **---**
+- **https://mega.nz/file/0yxgWAAC#LoQqkGFNq8cmu6WJIUxE0RZN_aVKo0huSA1VYzzNI8s**
 
 ### Profile creator
 - **https://gprm.itsvg.in/**
